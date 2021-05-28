@@ -1,6 +1,6 @@
 - 👋 ALOHA , I’m @helenedelillo
 - 👀 I’m interested in ...working wth programmers and designing visuals and testing imaging apps
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ... took project management - PMP getting certified
 - 💞️ I’m looking to collaborate on ... designing visual applications
 - 📫 How to reach me ... call
 
